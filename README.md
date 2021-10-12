@@ -6,3 +6,5 @@ Finished exercise 2. Took me about ten minutes again after I realized that I can
 
 The third exercise was quick too. I might be able to bang all these out before I have to work this morning. (it's a new day...and it's 4:30 in the morning.)
 
+Onto five!
+
