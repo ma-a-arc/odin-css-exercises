@@ -8,3 +8,5 @@ The third exercise was quick too. I might be able to bang all these out before I
 
 Onto five!
 
+Onto six...five was...easy.
+
